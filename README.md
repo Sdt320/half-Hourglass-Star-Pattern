@@ -1,0 +1,1 @@
+# half-Hourglass-Star-Pattern
